@@ -1,4 +1,3 @@
-<div class="tenor-gif-embed" data-postid="25782287" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/cat-typing-cat-typing-fire-fire-gif-25782287">Cat Typing Cat Typing Fire GIF</a>from <a href="https://tenor.com/search/cat+typing-gifs">Cat Typing GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/rx.ffie) 
