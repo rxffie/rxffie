@@ -1,4 +1,4 @@
-![Alt Text](Illustration_Bum_Sticker.gif)
+![Alt Text](Illustration Bum Sticker.gif)
 
 
 ## 🌐 Socials:
